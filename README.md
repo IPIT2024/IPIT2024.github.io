@@ -1,1 +1,0 @@
-# IPIT2024.github.io
